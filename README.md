@@ -1,16 +1,13 @@
-## Hi there 👋
-
-<!--
-**NotAEaglerKid/NotAEaglerKid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## i do minecraft stuff  
+### dont take down my stuff please
+#### also i mess with random cheats for other games too
+##### yes i can play without cheats
+###### how small does this go  
+####### smaller  
+######## smaller  
+######### smaller  
+########## smaller  
+########### smaller  
+############ smaller  
+############# smaller  
+oh well it cant go that small
