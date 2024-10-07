@@ -1,4 +1,5 @@
-## i do minecraft stuff and randomness  
+#I'm failing high school because i have
+no self control and spend my time here instead of doing homework 
 ### mainly i am working on a hacked client for a web port of minecraft  
 No clue what version its gonna be on for the release. probably r1.8.8 or b1.7.3  
 # A lot of the stuff I have starred may not be safe to run, always read what you run on your computer.  
